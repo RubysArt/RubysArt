@@ -1,0 +1,4 @@
+- hi, im ruby
+- my pronouns are she/her
+- probably will be mostly or only fnf junk here
+- have a good day
